@@ -39,6 +39,8 @@ shelly (dandys world, selective sharing)
 ![Untitled152_20250219073521](https://github.com/user-attachments/assets/eac72820-b8fa-43c1-ab1e-52f3695eb889)
 
 
-**other notes (ill prolly add onto this)**
+**ponytown specific**
 
-i like dewey alnst a normal amount
+c+h is heavily encouraged if i have it in my display name! if its not or if im with a friend, interacting is fine, but i prefer if people keep their distance a little ^_^
+
+i get anxious in crowded spaces often so 😓 err
