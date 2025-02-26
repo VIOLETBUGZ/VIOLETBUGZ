@@ -1,7 +1,7 @@
 ![ivantill](https://github.com/user-attachments/assets/47851740-be3c-435d-b803-7ec57c4a0e82)
 hi!! im **violet,** but i also go by **shelly, till, luka, rui, or literally whatever my current pony is.** i'm a trans male and use **they/them pronouns and exclusively masc terms,** and i'm seventeen (turning eighteen in september)
 
-i like ***alien stage, project sekai, dandys world,** pokemon, our life, a date with death,* forsaken, pressure, rain world, and many more that im too lazy to list ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again
+i like ***alien stage, project sekai, dandys world, cold front, dead plate,** pokemon, our life, a date with death,* forsaken, pressure, rain world, and many more that im too lazy to list ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again
 
 im an artist, yumeshipper, shiny hunter, and sometimes a writer ^^ i like drawing on peoples strawpages (i always leave a pink heart in the corner :3)
 
@@ -10,7 +10,7 @@ im an artist, yumeshipper, shiny hunter, and sometimes a writer ^^ i like drawin
 
 **before you interact,** i have adhd and very bad anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a msg/ping for a while !! i struggle with holding conversations ,,, i also tend to get super attached easily but i try not to be annoying about it 3:
 
-**do not interact** if you're below 15 or above 24. i do not have a very specific dni list other than that but i block freely. ivanluka/lukatill shippers dni too i hate those ships so bad /srs
+**do not interact** if you're below 15 or above 24, or are a proshipper or apart of any sort of basic dni criteria. i do not have a very specific dni list other than that but i block freely. ivanluka/lukatill shippers dni too i hate those ships so bad /srs
 
 
 ![Untitled152_20250219073508](https://github.com/user-attachments/assets/1430caf3-ad5f-4823-9f4b-02a8b5148542)
