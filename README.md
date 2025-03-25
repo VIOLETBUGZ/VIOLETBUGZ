@@ -43,8 +43,12 @@ shelly (dandys world, selective sharing)
 
 c+h is heavily encouraged if i have it in my display name! if its not or if im with a friend, interacting is fine, but i prefer if people keep their distance a little ^_^
 
+
 i get anxious in crowded spaces often so 😓 err
 
+
 *if my status is **online:*** i'm active. duh
+
 *if my status is **idle:*** i'm offtab or afk
+
 *if my status is **busy:*** i'm doing something and can't tab in often, or i don't want to be bothered
