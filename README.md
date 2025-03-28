@@ -30,7 +30,7 @@ cove holden (our life: before & always, selective sharing)
 
 qiu lin (our life: now & forever, selective sharing)
 
-arven, drayton, hop (pokemon, nonsharing)
+arven, drayton (pokemon, nonsharing)
 
 shelly (dandys world, selective sharing)
 
@@ -51,4 +51,4 @@ i get anxious in crowded spaces often so 😓 err
 
 *if my status is **idle:*** i'm offtab or afk
 
-*if my status is **busy:*** i'm doing something and can't tab in often, or i don't want to be bothered
+*if my status is **busy:*** i'm doing something and can't tab in often, or i don't want to be bothered (usually the 2nd one)
