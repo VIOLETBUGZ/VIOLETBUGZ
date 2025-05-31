@@ -20,6 +20,8 @@ im an artist, yumeshipper, shiny hunter, and sometimes a writer ^^ i like drawin
 
 **my yumes** 
 
+**griefer/brad thaniyel** (blocktales, nonsharing)
+
 **rui kamishiro, emu otori,** akito shinonome, tsukasa tenma (project sekai, **nonsharing** + sharing)
 
 **guest 1337, elliot, chance,** 007n7 (forsaken, **selective** + sharing)
