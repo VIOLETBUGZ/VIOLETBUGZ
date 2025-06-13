@@ -12,7 +12,7 @@ im an artist, yumeshipper, shiny hunter, and sometimes a writer ^^ i like drawin
 
 **before you interact,** i have adhd and very bad anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a msg/ping for a while !! i struggle with holding conversations ,,, i also tend to get super attached easily but i try not to be annoying about it 3: **dont friend me just to not talk to me again**
 
-**do not interact** if you're below 15 or above 21, or are a proshipper or apart of any sort of basic dni criteria. i do not have a very specific dni list other than that but i block freely. ivanlukatill & vincerody shippers dni too i hate those ships so bad. **i hate pizzadebt and doublefedora. shippers are on thin ice—just dont talk about it around me**
+**do not interact** if you're below 15 or above 21, or are a proshipper or apart of any sort of basic dni criteria. i do not have a very specific dni list other than that but i block freely. **i hate __all mafioso ships__ and ichance if u ship those DNI im so srs**
 
 
 ![Untitled152_20250219073508](https://github.com/user-attachments/assets/1430caf3-ad5f-4823-9f4b-02a8b5148542)
