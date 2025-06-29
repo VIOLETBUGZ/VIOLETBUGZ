@@ -1,7 +1,7 @@
 ![ivantill](https://github.com/user-attachments/assets/47851740-be3c-435d-b803-7ec57c4a0e82)
 hi!! im **violet,** but i also go by **whatever my current pony is.** i'm a trans male and use **they/them pronouns and exclusively masc terms,** and i'm seventeen (turning eighteen in september)
 
-i like ***forsaken, project sekai,*** **dandys world,** *racheldrawsthis' games,* beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again
+i like ***forsaken, phighting, block tales, project sekai,*** **dandys world,** *racheldrawsthis' games,* beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again
 
 ship wise i'm obsessed with **paycheck, pizzapunch, toughluck, pizzaburger,** and **azuretime**
 
