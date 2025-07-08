@@ -3,7 +3,7 @@
 
 <p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗳𝗼𝗿𝘀𝗮𝗸𝗲𝗻, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
-<p align="center"> ship wise i'm a big fan of toxic hero, icedtea, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, skateshot, medhammer, subkit, scythestaff, and swocket.
+<p align="center"> ship wise i'm a big fan of toxic hero, icedtea, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, skateshot, medhammer, subkit, scythekit, swocket, krusielle, kralsei, and kerdly
 
 <p align="center"> im an artist, yumeshipper, shiny hunter, and sometimes a writer.
 
