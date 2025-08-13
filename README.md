@@ -48,7 +48,7 @@
 
 ## <p align="center"> **ponytown specific**
 
-<p align="center"> c+h is heavily encouraged if i have it in my display name ^_^ if its not or if im with a friend, interacting is still fine :P just know im a very anxious person
+<p align="center"> i really like to sit with people and c+h is heavily encouraged if i have it in my display name ^_^ if its not or if im with a friend, interacting is still fine :P if i sit with u and u have c+h in ur name im probably going to be there for hours ... lawl
 
 
 <p align="center"> i get anxious and sometimes overwhelmed in crowded spaces and may need to take a step back to calm down
