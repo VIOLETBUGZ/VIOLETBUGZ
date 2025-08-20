@@ -7,7 +7,7 @@
 
 <p align="center"> im an artist, yumeshipper, shiny hunter, and sometimes a writer.
 
-### <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
+# <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
 
 
 <p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i have adhd and very bad anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a msg/ping for a while. i struggle with holding conversations, and i also tend to get super attached easily but i try not to be annoying about it. dont friend me just to not talk to me again.
