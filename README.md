@@ -22,7 +22,7 @@
 
 <p align="center"> 𝙜𝙧𝙞𝙚𝙛𝙚𝙧/𝙗𝙧𝙖𝙙 𝙩𝙝𝙖𝙣𝙞𝙮𝙚𝙡 (blocktales, heavily nonsharing)
 
-<p align="center"> subspace, medkit (phighting, selective)
+<p align="center"> sword, zuka, vine staff, subspace, medkit (phighting, very selective for all but sword and zuka)
 
 <p align="center"> 𝙧𝙪𝙞 𝙠𝙖𝙢𝙞𝙨𝙝𝙞𝙧𝙤, 𝙚𝙢𝙪 𝙤𝙩𝙤𝙧𝙞, akito shinonome, tsukasa tenma (project sekai, 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 + sharing)
 
