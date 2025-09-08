@@ -1,5 +1,5 @@
 ### <p align="center"> ![Untitled2_20250704211131](https://github.com/user-attachments/assets/0eb3f1e1-df39-40b2-b9ec-d955dc00b60e)
-## <p align="center"> my name is violet, or noli, or really whatever you wanna call me. nicknames are ok idgaf
+## <p align="center"> my name is violet, or phoenix, or really whatever you wanna call me. nicknames are ok idgaf
 
 <p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗳𝗼𝗿𝘀𝗮𝗸𝗲𝗻, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, the amazing digital circus, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
