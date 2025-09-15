@@ -1,18 +1,18 @@
 ### <p align="center"> ![Untitled2_20250704211131](https://github.com/user-attachments/assets/0eb3f1e1-df39-40b2-b9ec-d955dc00b60e)
 ## <p align="center"> my name is violet, or phoenix, or really whatever you wanna call me. nicknames are ok idgaf
 
-<p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗳𝗼𝗿𝘀𝗮𝗸𝗲𝗻, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, the amazing digital circus, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
+<p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗳𝗼𝗿𝘀𝗮𝗸𝗲𝗻, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, the amazing digital circus, silksong, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
-<p align="center"> ship wise i'm a big fan of toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, swocket, coilskateshot, medhammer, subkit, and scythekit.
+<p align="center"> ship wise i'm a big fan of toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, emukasa, swocket, coilskateshot, medhammer, subkit, and scythekit.
 
-<p align="center"> im an artist, yumeshipper, shiny hunter, and sometimes a writer.
+<p align="center"> im an artist, yumeshipper, and sometimes a writer.
 
 # <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
 
 
-<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i have adhd and very bad anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a msg/ping for a while. i struggle with holding conversations, and i also tend to get super attached easily but i try not to be annoying about it. dont friend me just to not talk to me again.
+<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i have very very bad social anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a message/ping for a while. i struggle with holding conversations and responding to stuff if we're not close, and i also tend to get really jealous and super attached easily but i try not to be annoying about it. dont friend me just to not talk to me again. also dont make "im gonna touch you" jokes about me and dont flirt with me.
 
-<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, or are a proshipper or apart of any sort of basic dni criteria. i do not have a very specific dni list other than that but i block freely. i hate __all mafioso ships__ and ichance. if u ship those, you can still interact, just dont talk about them around me.
+<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, or are a proshipper or apart of any sort of basic dni criteria. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, or scythestaff (scythe is 40 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me.
 
 
 ### <p align="center"> ![Untitled8_20250704212826](https://github.com/user-attachments/assets/9ce7ea92-1e89-487e-8a78-618250380bc2)
@@ -22,7 +22,7 @@
 
 <p align="center"> 𝙜𝙧𝙞𝙚𝙛𝙚𝙧/𝙗𝙧𝙖𝙙 𝙩𝙝𝙖𝙣𝙞𝙮𝙚𝙡 (blocktales, heavily nonsharing)
 
-<p align="center"> sword, zuka, vine staff, subspace, medkit (phighting, very selective for all but sword and zuka)
+<p align="center"> sword, zuka, vine staff, subspace, medkit (phighting, very selective for all but nonsharing for sword and zuka)
 
 <p align="center"> 𝙧𝙪𝙞 𝙠𝙖𝙢𝙞𝙨𝙝𝙞𝙧𝙤, 𝙚𝙢𝙪 𝙤𝙩𝙤𝙧𝙞, akito shinonome, tsukasa tenma (project sekai, 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 + sharing)
 
