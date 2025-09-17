@@ -54,7 +54,7 @@
 <p align="center"> i get anxious and sometimes overwhelmed in crowded spaces and may need to take a step back to calm down
 
 
-<p align="center"> sign my brothers atabook
+<p align="center"> sign my irl brothers atabook
 <p align="center"> https://eternavoid.atabook.org/
 <p align="center"> (be nice. please slash srs)
 
