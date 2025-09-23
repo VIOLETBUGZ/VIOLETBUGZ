@@ -10,7 +10,7 @@
 # <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
 
 
-<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i have very very bad social anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a message/ping for a while. i struggle with holding conversations and responding to stuff if we're not close, and i also tend to get really jealous and super attached easily but i try not to be annoying about it. dont friend me just to not talk to me again. also dont make "im gonna touch you" jokes about me and dont flirt with me.
+<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i have very very bad social anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a message/ping for a while. i struggle with holding conversations and responding to stuff if we're not close, and i also tend to get really jealous and super attached easily but i try not to be annoying about it. i can get really emotionally unstable sometimes. dont friend me just to not talk to me again. also dont make "im gonna touch you" jokes about me and dont flirt with me.
 
 <p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, zukaheart, or scythestaff (scythe is 40 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me.
 
