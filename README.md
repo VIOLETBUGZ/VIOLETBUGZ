@@ -1,18 +1,18 @@
 ### <p align="center"> ![Untitled2_20250704211131](https://github.com/user-attachments/assets/0eb3f1e1-df39-40b2-b9ec-d955dc00b60e)
 ## <p align="center"> my name is violet, or phoenix, or really whatever you wanna call me. nicknames are ok idgaf
 
-<p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗳𝗼𝗿𝘀𝗮𝗸𝗲𝗻, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, the amazing digital circus, silksong, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
+<p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, silksong, forsaken, the amazing digital circus, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
-<p align="center"> ship wise i'm a big fan of toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, emukasa, swocket, coilskateshot, medhammer, subkit, and scythekit.
+<p align="center"> ship wise i'm a big fan of medhammer, swocket, coilskateshot, subkit, scythekit, toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, and emukasa.
 
 <p align="center"> im an artist, yumeshipper, and sometimes a writer.
 
 # <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
 
 
-<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i'm 18, i have very very bad social anxiety so please be patient with me if i seem shy or nervous or if i dont reply to a message/ping for a while. i struggle with holding conversations and responding to stuff if we're not close, and i also tend to get really jealous and super attached easily but i try not to be annoying about it. i am very very sensitive and can get really emotionally unstable sometimes so pls be kind .... also dont make "im gonna touch you" jokes about me and dont flirt with me.
+<p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i'm 18, i have very very VERY bad anxiety that causes me to get bad cramps and nausea when even slightly upset, so please be kind and patient with me if i get really quiet or hesitant around you. i struggle with holding conversations and responding to stuff if we're not close, and i dont have alot of friends so i also tend to get really jealous and super attached easily but i try not to be annoying about it. i am very very sensitive and can get really emotionally unstable sometimes so pls be kind .... also dont make "im gonna touch you" jokes about me and dont flirt with me.
 
-<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, zukaheart, or vinehammer/scythestaff (vine is 20 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me.
+<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, zuka ships, or vinehammer/scythestaff (vine is 20 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me. also, don't shit talk about my favorite ships when i'm nearby, you know who you are. i can read your chats.
 
 
 ### <p align="center"> ![Untitled8_20250704212826](https://github.com/user-attachments/assets/9ce7ea92-1e89-487e-8a78-618250380bc2)
@@ -24,7 +24,7 @@
 
 <p align="center"> sword, zuka, vine staff, subspace, medkit (phighting, very selective for all but nonsharing for sword and zuka)
 
-<p align="center"> 𝙧𝙪𝙞 𝙠𝙖𝙢𝙞𝙨𝙝𝙞𝙧𝙤, 𝙚𝙢𝙪 𝙤𝙩𝙤𝙧𝙞, akito shinonome, tsukasa tenma (project sekai, 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 + sharing)
+<p align="center"> 𝙧𝙪𝙞 𝙠𝙖𝙢𝙞𝙨𝙝𝙞𝙧𝙤, 𝙚𝙢𝙪 𝙤𝙩𝙤𝙧𝙞, tsukasa tenma (project sekai, 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 + sharing)
 
 <p align="center"> pest (regretevator, nonsharing)
 
