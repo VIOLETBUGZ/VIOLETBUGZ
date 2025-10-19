@@ -3,7 +3,7 @@
 
 <p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, silksong, forsaken, the amazing digital circus, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
-<p align="center"> ship wise i'm a big fan of medhammer, swocket, coilskateshot, subkit, scythekit, toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, and emukasa. I Like Medhammer Alot. if you hate medhammer then u prolly shouldnt interact with me cuz its Literally my Favorite ship
+<p align="center"> ship wise i'm a big fan of medhammer, swocket, coilskateshot, subkit, scythekit, toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, and emukasa
 
 <p align="center"> im an artist, yumeshipper, and sometimes a writer.
 
