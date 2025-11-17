@@ -15,7 +15,7 @@
 <p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, zuka ships, or vinehammer/scythestaff (vine is 20 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me. strictly dni if you romantically ship medsword/subgraft
 
 
-### <p align="center"> !p[Untitled8_20250704212826](https://github.com/user-attachments/assets/9ce7ea92-1e89-487e-8a78-618250380bc2)
+### <p align="center">![Untitled8_20250704212826](https://github.com/user-attachments/assets/9ce7ea92-1e89-487e-8a78-618250380bc2)
 
 
 ## <p align="center"> **my yumes** 
