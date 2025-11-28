@@ -1,13 +1,14 @@
-### <p align="center"> ![Untitled2_20250704211131](https://github.com/user-attachments/assets/0eb3f1e1-df39-40b2-b9ec-d955dc00b60e)
+### <p align="center"> <img width="736" height="736" alt="medhammer" src="https://github.com/user-attachments/assets/6392822f-846c-484d-a5b0-1856e863255f" />
 ## <p align="center"> my name is violet, or phoenix / rainbeau, or really whatever you wanna call me. nicknames are ok idgaf
 
-<p align="center"> i like 𝙥𝙝𝙞𝙜𝙝𝙩𝙞𝙣𝙜, 𝗯𝗹𝗼𝗰𝗸𝘁𝗮𝗹𝗲𝘀, 𝗽𝗿𝗼𝗷𝗲𝗰𝘁 𝘀𝗲𝗸𝗮𝗶, silksong, forsaken, the amazing digital circus, dandys world, racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
+<p align="center"> i mainly like dispatch, phighting, project sekai, and dandys world, but i also like silksong, the amazing digital circus racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
-<p align="center"> ship wise i'm a big fan of medhammer, swocket, coilskateshot, subkit, scythekit, toxic hero, paycheck, pizzapunch, toughluck, pizzaburger, 1337n7, azuretime, ruikasa, emurui, and emukasa
+<p align="center"> ship wise i'm a big fan of medhammer, swocket, coilskateshot, scythekit, toxic hero, paycheck, pizzapunch, toughluck, ruikasa, emurui, and emukasa
 
 <p align="center"> im an artist, yumeshipper, and sometimes a writer.
 
-# <p align="center"> ![Untitled7_20250704211806](https://github.com/user-attachments/assets/6e9c95f8-d07e-43d0-bea5-a629733c6b57)
+# <p align="center"> <img width="736" height="736" alt="vinestaff" src="https://github.com/user-attachments/assets/9e18f104-30a0-45d9-9c4f-b64f178ce82a" />
+
 
 
 <p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i'm 18, i have very very VERY bad anxiety that causes me to get bad cramps and nausea when even slightly upset, so please be kind and patient with me if i get really quiet or hesitant around you. i struggle with holding conversations and responding to stuff if we're not close, and i dont have alot of friends so i also tend to get really jealous and super attached easily but i try not to be annoying about it. i am very very sensitive and can get really emotionally unstable sometimes so pls be kind .... also dont make "im gonna touch you" jokes about me and dont flirt with me.
@@ -15,7 +16,8 @@
 <p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like any mafioso ships, ichance, zuka ships, or vinehammer/scythestaff (vine is 20 wtf u guys shipping that for). if u ship those, you can still interact, just dont talk about them around me. strictly dni if you romantically ship medsword/subgraft
 
 
-### <p align="center">![Untitled8_20250704212826](https://github.com/user-attachments/assets/9ce7ea92-1e89-487e-8a78-618250380bc2)
+### <p align="center"> <img width="736" height="736" alt="Untitled11_20251128050840" src="https://github.com/user-attachments/assets/636e0511-9501-4824-a595-c6039a19a0d8" />
+
 
 
 ## <p align="center"> **my yumes** 
@@ -43,7 +45,8 @@
 <p align="center"> 𝙨𝙝𝙚𝙡𝙡𝙮, sprout, flyte (dandys world, 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 + selective sharing)
 
 
-### <p align="center"> ![Untitled8_20250704213526](https://github.com/user-attachments/assets/43c0edd1-d415-440e-a265-1ec003e6c6ba)
+### <p align="center"> <img width="736" height="736" alt="Untitled11_20251128051135" src="https://github.com/user-attachments/assets/c1ddb157-c861-448b-a021-3a2c8732057b" />
+
 
 
 ## <p align="center"> **ponytown specific**
@@ -59,8 +62,8 @@
 <p align="center"> (be nice. please slash srs)
 
 ## <p align="center"> art credit for all the art above
-### <p align="center"> [subkit 1](https://x.com/astertude/status/1704626839803527255)
-### <p align="center"> [subkit 2](https://x.com/astertude/status/1694116186965905871)
-### <p align="center"> [toxichero 1](https://x.com/EMPTY___rob/status/1937002739005083913)
-### <p align="center"> [toxichero 2](https://x.com/vaekieedouh/status/1933544247938158599)
+### <p align="center"> [medhammer](https://x.com/astertude/status/1992457650244890764?s=20)
+### <p align="center"> [vinestaff](https://www.tumblr.com/pieciyanni/785725204671414272)
+### <p align="center"> [partybeetle](https://x.com/clownboo_Art/status/1990889810920190067)
+### <p align="center"> [griefer](https://x.com/qifeng_guo/status/1956358922320880087?s=20)
 <p align="center"> if anyone wants their art removed pls lmk ^_^
