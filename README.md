@@ -1,5 +1,5 @@
 ### <p align="center"> <img width="736" height="736" alt="medhammer" src="https://github.com/user-attachments/assets/6392822f-846c-484d-a5b0-1856e863255f" />
-## <p align="center"> my name is violet, or phoenix / rainbeau, or really whatever you wanna call me. nicknames are ok idgaf
+## <p align="center"> my name is violet, phoenix, bug, rainbeau, or really whatever you wanna call me. nicknames are ok idgaf
 
 <p align="center"> i mainly like dispatch, phighting, project sekai, and dandys world, but i also like silksong, the amazing digital circus racheldrawsthis' games, beastars, pokemon, our life, a date with death, pressure, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again.
 
