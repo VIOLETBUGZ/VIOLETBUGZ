@@ -37,6 +37,7 @@
 ## <p align="center"> credit for all the graphics above
 ### <p align="center"> [graphics](https://www.tumblr.com/stomachbooks/790705615412609024/medkit-phighting-rentry-graphics-editfight)
 ### <p align="center"> [divider](https://www.tumblr.com/sisterlucifergraphics/770454871467016192/you-can-make-medkit-from-phighting-dividers?source=share)
+### <p align="center"> [also pfp credit](https://www.pinterest.com/pin/1141240361843487956/)
 
 <img width="1225" height="250" alt="lovesword" src="https://github.com/user-attachments/assets/2cdcd44e-57d6-4b49-8531-d0d0b7e3c732" />
 <img width="99" height="56" alt="medkit (4)" src="https://github.com/user-attachments/assets/5c55bee3-667e-4cf3-bf11-dcdbaf790ec7" />
