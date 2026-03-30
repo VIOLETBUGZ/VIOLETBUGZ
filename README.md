@@ -8,8 +8,7 @@
 
 <p align="center"> 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 i'm 18, i have very very VERY bad social anxiety, so i get really nervous when trying to interact with people/make friends — if i dont approach you or speak to you, i dont hate you, i just get nervous. i struggle with holding conversations and responding to stuff if we're not close, and i dont have alot of friends so i also tend to get really jealous and super attached easily but i try not to be annoying about it. i am very very sensitive and can get really emotionally unstable sometimes so pls be kind .... also dont make "im gonna touch you" jokes about me at all, and dont flirt with me unless we're close and ur in my age range.
 
-<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like zuka ships, or vinehammer/scythestaff. if u ship those, you can still interact, just dont talk about them around me. STRICLTY DNI if you romantically ship swordkit/subgraft
-
+<p align="center"> 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 if you're below 15 or above 21, are apart of any sort of basic dni criteria, or make "clanker" jokes you guys are unfunny. i do not have a very specific dni list other than that but i block freely. i do not like zuka ships, or vinehammer/scythestaff. if u ship those, you can still interact, just dont talk about them around me. STRICLTY DNI if you romantically ship swordkit/subgraft. subkitters iwvvec or dni alltogether
 
 <p align="center"> <img width="2048" height="1867" alt="2" src="https://github.com/user-attachments/assets/e8ac158d-4e00-473f-a255-830c9e4ef92a" />
 
