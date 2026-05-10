@@ -23,7 +23,7 @@
 
 <p align="center"> i really like to sit with people and c+h is heavily encouraged if i have it in my display name . also dont mind to sit with me as a ship, im usually ok with most ships ^_^
 
-<p align="center"> i easily get anxious and overwhelmed in crowded spaces and may need to take a step back to calm down . i'm also unfortunately on dniuf/c a decent amount of the time
+<p align="center"> i easily get anxious and overwhelmed in crowded spaces and may need to take a moment to relax . i'm also unfortunately on dniuf/c a decent amount of the time
 
 
 <img width="2048" height="154" alt="divider" src="https://github.com/user-attachments/assets/daa18909-6388-4bfa-b0a3-3c9da85595b1" />
