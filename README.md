@@ -1,6 +1,6 @@
 <p align="center"> <img width="2048" height="1867" alt="1" src="https://github.com/user-attachments/assets/b0ce65be-7c51-4014-b96f-a607689bc78a" />
 
-  ## <p align="center"> hi! my name is violet, phoenix, bug, or really whatever you wanna call me. nicknames are ok aslong as you ask!
+  ## <p align="center"> hi! my name is violet, ren, phoenix, or really whatever you wanna call me. nicknames are ok aslong as you ask!
 
 <p align="center"> my main interests are in stars and time, hl(2)vrai, hl1-2, but i also like project sekai, a date with death, our life, date everything, phighting, silksong, the amazing digital circus, beastars, pokemon, rain world, and many more that im too lazy to list. ^_^ my interests also tend to change often (usually every 2 months) so expect a change every now and again. ship wise i'm a big fan of medhammer and polysho mhm mhm
 
