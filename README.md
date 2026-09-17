@@ -1,12 +1,4 @@
-im gonna remake this eventually
-
-
-basic shit: 18 years old, they/them trans guy. read my pronounscc 4 more.
-
-
-voidsharing yumeshipper of many. main ones are griefer (bt), sword, zuka, vine staff, (p!), pest (reg), arven, and drayton (pkmn)
-
-(im NOT a toxic nonsharer. doubles are valid and loved, i just get insecure and would prefer not to interact with them. i don't hate doubles, i just don't talk to them for my own sake)
-
-
-i get nervous when people acknowledge my existence
+<p align="center"> <img width="600" height="600" alt="iheartgriefer" src="https://github.com/user-attachments/assets/08a2c4bf-8bbb-420d-85a5-c1383eaba985" />
+<p align="center"> wip
+<p align="center"> read my pronouns.cc
+<p align="center"> <img width="200" height="30" alt="grieferblinky" src="https://github.com/user-attachments/assets/44b4bfe4-590e-4fc8-bd36-cb475e883d8a" />
