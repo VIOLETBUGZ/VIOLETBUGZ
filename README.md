@@ -1,8 +1,7 @@
 <p align="center"> <img width="2000" height="1400" alt="image" src="https://github.com/user-attachments/assets/4464824a-8af6-4b62-aa1c-a3266eb0bff5" />
-
-# <p align="center"> ${\textsf{\color{#626748}heavy wip im so lazy}}$
+<p align="center"> ${\textsf{\color{#626748}heavy wip im so lazy}}$
 <p align="center"> ${\textsf{\color{#965A75}read my pronouns.cc}}$
-
+  
 <p align="center"> <img width="2000" height="1100" alt="image" src="https://github.com/user-attachments/assets/a3f413b3-5b3c-4837-9eeb-d27e2ae8a777" />
 
 [graphics credits](https://www.tumblr.com/verguletto/786685217523056640/)
