@@ -2,7 +2,7 @@
 <p align="center"> ${\textsf{\color{#626748}heavy wip im so lazy}}$
 <p align="center"> ${\textsf{\color{#965A75}quick info, i am a (NON-TOXIC) nonsharing yume (I love my doubles!! i just dont int with them for my own sake), im 18, i use they/them.}}$
 <p align="center"> ${\textsf{\color{#626748}dni: proshippers (medsword, subgraft, shurishotstaff), T.R.A.S.H, pro-life exc. general shit.}}$
-<p align="center"> ${\textsf{\color{#965A75}im not a medsword shipper. and i am not dating a sword kin??. dont go spreading rumors about me without even ever SPEAKING to me.}}$
+<p align="center"> ${\textsf{\color{#965A75}im not a medsword shipper. and i am not dating a sword kin??. dont go spreading rumors about me without ever even speaking to me.}}$
   
 <p align="center"> <img width="2000" height="1100" alt="image" src="https://github.com/user-attachments/assets/a3f413b3-5b3c-4837-9eeb-d27e2ae8a777" />
 
