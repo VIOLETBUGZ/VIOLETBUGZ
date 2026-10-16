@@ -1,7 +1,7 @@
 <p align="center"> <img width="2000" height="1400" alt="image" src="https://github.com/user-attachments/assets/4464824a-8af6-4b62-aa1c-a3266eb0bff5" />
 <p align="center"> ${\textsf{\color{#626748}heavy wip im so lazy. read my prns.cc}}$
 <p align="center"> ${\textsf{\color{#965A75}quick info, im 19, i use they/them, i am a (NON-TOXIC) nonsharing yume (I love my doubles!! i just dont int with them for my own sake).}}$
-<p align="center"> ${\textsf{\color{#626748}dni: proshippers (medsword, subgraft, shurishotstaff), T.R.A.S.H, pro-life exc. general shit.}}$
+<p align="center"> ${\textsf{\color{#626748}dni: pro/darkshippers and incest likers can die and go to hell. T.R.A.S.H, pro-life, pro-ai, zionists or zionist likers}}$
 <p align="center"> ${\textsf{\color{#965A75}i love medhammer and vinesword}}$
 <p align="center"> ${\textsf{\color{#626748}im not a medsword shipper and im not dating a sword kin as a medkit kin LMAO?? dont go spreading rumors about me without even speaking 2 me}}$
   
