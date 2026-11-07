@@ -1,5 +1,5 @@
 <p align="center"> <img width="2000" height="1400" alt="image" src="https://github.com/user-attachments/assets/4464824a-8af6-4b62-aa1c-a3266eb0bff5" />
-<p align="center"> ${\textsf{\color{#965A75}extremely socially anxious, iwcuf at all times. c+h enc always i dont bite, unless on dniuf}}$
+<p align="center"> ${\textsf{\color{#965A75}extremely socially anxious, iwcuf at all times. c+h enc always}}$
 <p align="center"> ${\textsf{\color{#626748}19, they/xe trans man, mostly nonsharing yume (im not toxic. I love my doubles!! i just dont int with them for my own sake).}}$
 <p align="center"> ${\textsf{\color{#965A75}dni: pro/darkshippers and incest likers can die and go to hell. T.R.A.S.H, pro-life, pro-ai, zionists or zionist likers.}}$
 <p align="center"> ${\textsf{\color{#626748}i love medhammer and ghostsoap}}$
